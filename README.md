@@ -6,4 +6,4 @@ By:
 Muñiz Rivas Elizabeth, 
 Romero Juarez Alejandra, 
 Vasquez Garcia Palemon, 
-Carbajal Naranjo Carlos Gabriel.
+Carbajal Naranjo Carlos Gabriel. 
